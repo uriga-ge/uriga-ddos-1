@@ -1,1 +1,1 @@
-# uriga-ddos-1
+I will not be held responsible if anything happens.
